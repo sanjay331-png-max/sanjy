@@ -1,1 +1,1 @@
-# sanjy
+ The company said sales of its mini segment cars (Alto, S-Presso) remained almost flat at 28,462 units, while those of compact cars (WagonR, Swift, Celerio, Ignis, Baleno and Dzire) and utility vehicles (Gypsy, Ertiga, S-Cross, Vitara Brezza and XL6) were up 26.6% to 95,067 units and 10% to 25,396 units, respectively.
